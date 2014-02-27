@@ -1,4 +1,7 @@
-Free-Blurred-Backgrounds
+Free Blurred Backgrounds
 ========================
 
 50+ Free Blurred Backgrounds.
+
+The images:
+
